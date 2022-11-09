@@ -1,2 +1,3 @@
 # brute-02
-# update sedang berjalan
+# lagi Di Update Ajg
+# Sabar Ya Ajg
